@@ -38,7 +38,7 @@
 <br/>
 <br/>
 
-### ☕ Wanna chat?
+### ☕ Entre em contato!
 
 <p>
     <a href="https://discordapp.com/users/665672119899914241/">
